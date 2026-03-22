@@ -1,2 +1,2 @@
 # Nzx Hub
-What are you looking at here? 
+Why are you here? Not skid lol 
